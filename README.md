@@ -4,8 +4,8 @@
 
 # ช่องทางติดต่อ
 
-Email: toeymonifire@gmail.com 
+__**Email**__<br>toeymonifire@gmail.com 
 <br>
-Discord: https://discord.com/invite/kXQUq2TavJ
+__**Discord**__<br>https://discord.com/invite/kXQUq2TavJ
 
 ![Description of the image](2024071402532514.jpg)
